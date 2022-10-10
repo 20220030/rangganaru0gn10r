@@ -1,1 +1,0 @@
-# rangganaru0gn10r
